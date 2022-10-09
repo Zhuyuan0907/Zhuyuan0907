@@ -11,7 +11,7 @@
 
 15y｜09.07｜(●'◡'●)
 
-####聯絡我
-Discord:(https://discord.com/users/550998924626886691)
-Instagram:(https://www.instagram.com/zhuyuan_0907/)
-Youtube:(https://www.youtube.com/channel/UC8d14R1jSFpogkPSEkOMLxQ)
+#### 聯絡我
+- Discord:(https://discord.com/users/550998924626886691)
+- Instagram:(https://www.instagram.com/zhuyuan_0907/)
+- Youtube:(https://www.youtube.com/channel/UC8d14R1jSFpogkPSEkOMLxQ)
