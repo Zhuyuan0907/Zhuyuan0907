@@ -1,6 +1,4 @@
-### Hi 我是天神Zhuyuan
-
-<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&width=435&lines=Hi%2C+I'm+Zhuyuan;A+Minecraft+Server+Of+ZhuyuanPractice+Owner" alt="Typing SVG" />
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=351AF7&width=435&lines=Hi%2C+I'm+Zhuyuan.;The+Owner+of++ZhuyuanPractice;Here+is+my+Official+Github+Account" alt="Typing SVG" />
 </a>
 
 
