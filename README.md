@@ -11,4 +11,4 @@
 #### 聯絡我
 - Discord:[zhuyuan0907](https://discord.com/users/550998924626886691)
 - Instagram:[Zhuyuan_0907](https://www.instagram.com/zhuyuan_0907/)
-- Youtube:[天神Zhuyuan](https://www.youtube.com/channel/UC8d14R1jSFpogkPSEkOMLxQ)
+- Youtube:[Zhuyuan](https://www.youtube.com/channel/UC8d14R1jSFpogkPSEkOMLxQ)
